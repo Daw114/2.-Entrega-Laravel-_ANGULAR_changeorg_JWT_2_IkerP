@@ -1,0 +1,1 @@
+Buenas Cristina, no he conseguido completar la tarea completa ya que me ha dado un error a la hora de subir las fotos. He estado toda la tarde intentado solucionarlo pero no a habido manera. Te entrego todo lo demas ya que esta todo realizado menos las imagenes. Un saludo. Iker
